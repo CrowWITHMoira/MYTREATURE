@@ -1,2 +1,2 @@
 # MYTREATURE
-interestiong for me
+interesting for me
